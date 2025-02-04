@@ -1,6 +1,6 @@
 # Privacy Policy for Puff Tree
 
-*Last updated: [Current Date]*
+*Last updated: 2025-02-04
 
 ## Introduction
 
